@@ -1,2 +1,5 @@
 - 👋 Hi, I’m @Marcelino304
-- Tugas PKK
+- kamu pasti della verlicta yaa
+- jangan lupain aku yaa walaupun kita agak jauh jaraknya
+- hihi💝💝
+- lovee youu
